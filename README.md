@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills to solve people issues in this modern era.
 - 🌱 I’m currently learning programming, computer science, automation, and self development.
 - 💞️ I’m looking to collaborate on with mentors whom can help me with my studies.
-- 📫 How to reach me Instagram and mail
+- 📫 How to reach me Instagram and mirzasubhan7755@gmail.com
 - 😄 Pronouns: Subhan
 - ⚡ Fun fact: I can fight.
 
